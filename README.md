@@ -16,7 +16,7 @@
 
 ## ⚠️ Diqqət
 
-> **Bu reponu əkən şəxs, burdan bircə hərf belə götürən şəxs — sənin ananı, bacını, nesilini, 7 sülaləni... s2m. Əkmə PEYSƏR.**
+> **hey**
 
 > ⚠️ *(Qeyd: Bu məzmun müəllifin istəyi ilə saxlanılmışdır. Açıq mənbə ruhuna zidd ifadələr GitHub qaydalarına uyğun deyil.)*
 
